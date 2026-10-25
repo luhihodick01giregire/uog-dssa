@@ -1,5 +1,3 @@
-# uog-dssa
-Official website of Daulo Students &amp; Staff Association - University of Goroka 2026 | Closing Function Nov 1st
 # 🦅 UOG-DSSA - University of Goroka
 ### Daulo Students & Staff Association Official Website 2026
 
